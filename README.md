@@ -1,1 +1,0 @@
-# jeredhiggins.github.io
